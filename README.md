@@ -19,7 +19,7 @@ Let’s just say, I know my stuff. I’m not one to talk too much about it (for 
 
 ## Connect With Me
 
-- [GitHub](https://github.com/yourusername)
+- [GitHub](https://github.com/yashwantsingh0)
 - [Medium](https://medium.com/@yashwant1)
 
 ---
